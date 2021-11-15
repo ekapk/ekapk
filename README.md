@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ekapk
 - 👀 I’m interested in Parkour and freerunning, cooking, crypto trading and nature stuff mostly. 
-- 🌱 I’m currently learning on a mission to complete twilioquest
+- 🌱 I’m currently on a mission to complete twilioquest
 - 💞️ I’m looking to collaborate on any cool project, from pixel art to making a trading bot.
 - 📫 How to reach me I'm the same user on instagram. and you can mail me on pipimpadle@protonmail.com
